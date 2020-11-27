@@ -10,3 +10,6 @@ I also read some e-book to finding supplementary information on what i am learni
 
 Wish me luck, it will be long journey.
 Hwaiting!
+
+
+![Alt text](https://i.dailymail.co.uk/1s/2019/05/21/21/13782458-7054811-image-a-63_1558472072055.jpg)
